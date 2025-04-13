@@ -1,1 +1,1 @@
-# pr1tak.github.io
+# prithvi.github.io
